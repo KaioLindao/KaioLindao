@@ -1,0 +1,4 @@
+- Hi my name is Kaio, im a beginner at hacking and a totaly virgin in coding lol.
+- Also i am From South America And my english is not that great, but i can comunicate on english.
+- I am a Linux User (even though rn im using my moms notebook that is a windows But when i get my computer back i will totaly be 100% using Linux.)
+- And Thats it, i am not very interesting thats all!
